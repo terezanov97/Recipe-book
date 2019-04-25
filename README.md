@@ -8,3 +8,5 @@
 
 
 Ссылка на Введение https://yadi.sk/i/Hz4iuKJ8hxNvCw
+
+Ссылка на Miro https://miro.com/app/board/o9J_kxmExNQ=/
